@@ -73,13 +73,7 @@ https://dria.co/edge-ai
 
 https://form.typeform.com/to/Eav42hR3?typeform-source=www.google.com
 
-
-👉 **Join TG for more Updates:** https://telegram.me/cryptogg
-
-Thank U❤️
-
-
-
+----------------------------------------------
 
 
 
@@ -124,7 +118,4 @@ gemini-1.5-pro
 
 U can get Gemini API key From here--  https://aistudio.google.com/app/apikey
 
-
-Lets Fucking Go🚀 Its Done✅
-
-Thank u❤️
+Its Done✅❤️
